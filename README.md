@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Alexandra Tikhomirova-Gold
+- 👀 I’m interested in becoming a 3D environment artist in a friendly and motivational company
+- 🌱 I have just graduated as a game artist from University of South Wales
+- 💞️ I’m looking to collaborate on a 3D involved project
+- 📫 Email me: gold.sasha11@yahoo.com Call me: +447964724549
